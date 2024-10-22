@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Neera-d37
+- 👋 Hi, I’m @Niranjana
 - 👀 I’m interested in tech, electronics 
 - 🌱 I’m currently learning btech 
 - 💞️ I’m looking to collaborate on ...
