@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Niranjana
-- 👀 I’m interested in tech, electronics 
+- 👀 I’m interested in
 - 🌱 I’m currently learning btech 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
